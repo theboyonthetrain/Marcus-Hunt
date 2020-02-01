@@ -1,2 +1,0 @@
-# Marcus Hunt
- User Page
